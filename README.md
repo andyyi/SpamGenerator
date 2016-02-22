@@ -7,3 +7,8 @@ a. Choose numbers of how many SPAMs would be sent out.
 b. Choose which engeer would be choose or multi engeer work at the same time.
 
 Good luck, stupid guys! You would be die after you know me!
+
+
+Here are some guys' email addresses:
+
+Ellen.Xu@latestmsprojecttraining.com
